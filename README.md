@@ -1,4 +1,89 @@
 # 网址大全
+--------------------------------
+> 2021-5-15 更新 -- 寒蛩
+
+
+## 极品好站点
+1.派派档案馆：
+https://paipai.run/
+2.综合资源：阿虚同学储物间
+（网站所示公众号非寒蛩所有）
+axutongxue.com
+3.梯子（致敬每一颗向往自由的灵魂）
+ikuuu.org
+
+## 淫之初，性本蛋
+1.蓝色导航
+http://lanse.men/
+2.javdb网：
+javdb9.com
+3.hentai（要爬梯）
+https://zhb.doghentai.com
+4.磁力搜索
+a.
+clss.me
+b.
+https://ciligou.app?from=cliapp
+c.查番号
+骑兵 https://tellme.pw/avmoo
+步兵 https://tellme.pw/avsox
+5.寻花问柳，扫楼测评
+https://13pp.info/index_index.html?page=2
+6.无梯看韩漫
+https://rouman5.com/home
+
+## 影视资源，要你好看
+（原则：只收录大家一致认可的精品网站，其他杂七杂八的去百度网站或app吧）
+1.低端影视，大家都说好
+ddrk.me
+2.爱达杂货铺，之前一直在用
+adzhp.cn
+3.不死鸟，谁用谁知道
+iao.su
+4.带老派推荐的，我放心
+549.tv
+5.无意间发现的，可以看很多系列电影
+libvio.com
+6.视频解析下载
+https://bilibili.iiilab.com/
+
+## 电子书网站，打造高智商派派
+1.书享家（综合）
+shuxiangjia.cn
+2.资源帝（综合）
+shu.ziyuandi.cn
+3.小蜜蜂（要开会员才能下载）
+www.obook.vip
+4.人是一棵思想着的苇草
+a.圣经检索（辩证看待，谨慎进入）
+http://www.godcom.net/ 
+b.马导师思想检索（大师级）
+https://www.marxists.org/chinese/index.html 
+c.周树人语录检索（鲁迅，浙江周树人）
+http://www.luxunmuseum.com.cn/cx/ 
+
+## 综合站点，啥都有
+1.虫部落（快搜）
+search.chongbuluo.com
+2.沃克导航
+http://www.waysto.work/
+第六部分：极简搜索引擎，摆脱烦人推送
+极简百度搜索
+a.
+http://ephemeral108.3vhost.net/
+b.
+https://m.baidu.com/?from=1013843a&pu=sz%401321_480&wpo=btmfast
+ 
+## 百度网盘相关
+1.租号：新极品
+http://fulivip.com/lin/vip
+2.网盘资源搜索
+a.
+https://m.pansoso.com/
+b.
+https://www.chaonengsou.com/
+
+--------------------------------
 
 ## 影视站
 
